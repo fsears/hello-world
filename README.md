@@ -1,2 +1,3 @@
 # hello-world
-indtroductory
+introductory
+A man after God.  Thank you Holy Spirit!!!
